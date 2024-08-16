@@ -1,0 +1,7 @@
+- 👋🏼 Hey there, I’m @Himanshxzzz - your friendly neighborhood developer
+- 💻 When I&#39;m not coding, you can find me gaming or exploring the latest tech trends
+- 🌱 Currently leveling up in web development and diving into the world of machine learning
+- 💡 Seeking collaborations on cutting-edge projects and disruptive innovations
+- 📫 Let’s connect! Drop me a line at himanshupanchaljpr03@outlook.com
+- 😄 Pronouns: He/Him/His
+- ⚡ Did you know? I once built a mini robot that can fetch objects for me!
